@@ -1,2 +1,2 @@
-# Welcome to my AssHole!
+# Welcome to haloproof's blog!
 
